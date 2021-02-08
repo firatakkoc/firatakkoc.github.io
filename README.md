@@ -1,0 +1,1 @@
+# firatakkoc.github.io
